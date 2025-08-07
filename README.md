@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Nishanth
-- 👀 I’m interested in Networking..
+- 👀 I’m interested in Hacking,Software and Networking..
 - 🌱 I’m currently learning Diploma in Computer Engg.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me nishanth.j.2026@rkmshome.org
